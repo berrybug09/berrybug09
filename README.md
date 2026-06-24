@@ -1,4 +1,4 @@
-## Welcome to my GitHub profile, I'm Krishnamoorthy Iyer
+## Welcome to my GitHub profile, I'm Krishnamoorthy Iyer :D
 
 Mechanical Engineering student interested in manufacturing, motorsport, and engineering software.
 
